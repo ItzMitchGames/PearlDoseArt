@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PearlDoseArt
+- 👀 I’m interested in: Gaming
+- 🌱 I’m currently learning: how to mod Friday Night Funkin'
+- 📫 How to reach me: animeme@gmail.com
